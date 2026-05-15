@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with bitmex trading bot high-frequency Algorithm | high-frequency & stop-loss, the #1 bitmex trading bot. Includes high-frequency and stop-loss for a smoother
 
 
 
